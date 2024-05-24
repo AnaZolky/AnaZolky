@@ -1,0 +1,7 @@
+- 😎Olá, me chamo Ana, tenho 16 anos
+- 😶‍🌫️Estou cursando o 2° ano do ensino médio
+- 🤓Atualmente estudando HTML
+- Não tenho "1" Anime favorito mas gosto muito de Demon Slayer, Attack On Titan e Tokyo Revengers
+- 🎮Meu maior hobby é jogar vídeo game, e estou platinando RD2 no momento
+- 🎵Meus artistas favoritos são Lucas A.R.T, Gabriel Rodrigues e Pedro Alves, do grupo 7MZ
+- ![LilPogchampsHorimiyaGIF](https://github.com/AnaZolky/AnaZolky/assets/168210765/81b0329f-1701-432c-a437-9bf7f111f088)
